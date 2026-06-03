@@ -19,7 +19,7 @@ Collaborated with a six-person team to develop a full social media video campaig
 
 ## 📄 Full Presentation
 
-[Download Full Presentation (PDF)](Social_Media_Group_3_Presentation__1_.pdf)
+[Download Full Presentation (PDF)](https://drive.google.com/file/d/1E3iBLDrlp-cE1NczonlfRw7s9fZ2V_Pd/view)
 
 ---
 
